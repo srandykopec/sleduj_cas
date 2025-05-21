@@ -1,0 +1,1 @@
+Sledu čas ideme na to!
